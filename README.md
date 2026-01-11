@@ -24,12 +24,6 @@ I will mainly be with my partner or sibling, I will try to interact
 
 ## hmu / int
 
-˚₊ · »-♡→ MY HERO ACADEMIA ( BNHA , MHA ) THE SUMMER HIKARU DIED ( TSHD) , JUJUTSU KIASEN ( JJK ) 
-
-˚₊ · »-♡→ CRY OF FEAR / AFRAID OF MONSTERS
-
-˚₊ · »-♡→ HOMESTUCK ( UNLESS YOU'RE A WEIRDO. YOU WILL BE BLOCKED.)
-
-˚₊ · »-♡→ MORE ON MY RENTRY... THESE ARE JUST MY MAINS...
+˚₊ · »-♡→ honestly i dont know what i like anymore.
 
 <img width="385" height="29" alt="image" src="https://github.com/user-attachments/assets/9498bb56-e139-462e-8760-f6a20d5bff6e" />
