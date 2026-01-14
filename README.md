@@ -16,7 +16,7 @@
 
 ## heres my links.
 
-˚₊ · »-♡→ https://rentry.co/exxplsn
+˚₊ · »-♡→ https://rentry.co/yskhh
 
 ## btw
 
